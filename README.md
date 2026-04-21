@@ -8,3 +8,8 @@ Part/Assembly Design
 ![Screenshot 2025-03-14 155048](https://github.com/user-attachments/assets/7e8ea4f6-6b27-46be-b36f-0b77e3cc1f24)
 ![Screenshot 2025-03-14 155000](https://github.com/user-attachments/assets/d289c9ab-91e2-4f6f-aec5-2712f2ba7afc)
 ![Screenshot 2025-03-14 154938](https://github.com/user-attachments/assets/82c0987d-c662-4d61-8282-a7b8671e88ae)
+<img width="1334" height="579" alt="Screenshot 2026-04-21 110816" src="https://github.com/user-attachments/assets/aa2acff8-17e8-4981-9944-835b2308d9fd" />
+
+
+https://github.com/user-attachments/assets/17b5c325-af6f-4c4e-be44-84d3869ff608
+
